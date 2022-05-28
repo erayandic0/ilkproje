@@ -1,0 +1,2 @@
+# ilkproje
+qfdklwjofheqıufhjekqlşfjhıuyeqgdkqejkfıoweuftoweıkfielo
